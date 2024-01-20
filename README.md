@@ -5,4 +5,3 @@ Hello, there is not much about me to say; however, I will list a few of my favor
 * _Homo Deus: A Brief History of Tomorrow_ -Yuval Noah Harari
 * _War of Necessity_ -Richard Haass
 * _Sapiens_ -Yuval Noah Harari
- 
